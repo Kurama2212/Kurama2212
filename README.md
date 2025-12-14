@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Gianmarco Senzamici
+# 👋 Hi, I'm Gianmarco Senzamici | Kurama2212
 
 🚗 **Automotive Engineer** | 📊 **Data & ML** | ⚙️ **Powertrain Systems**
 
